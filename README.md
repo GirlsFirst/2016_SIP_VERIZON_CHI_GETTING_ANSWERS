@@ -1,1 +1,1 @@
-# 2016_SIP_VERIZON_CHI_GETTING_ANSWERS
+# 2016_SIP_VerizoChicago_Getting-Answers
